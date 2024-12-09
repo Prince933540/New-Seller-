@@ -1,4 +1,4 @@
-# New-Seller-
+# New-Informer🔗
 Please support us 🙏🏾 friends there is new informer and Seller
 
 For registration click on this link or you can copy the link and go to Chrome website and paste their and search.
